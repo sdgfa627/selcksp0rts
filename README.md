@@ -1,4 +1,4 @@
-<h1>selçuksports</h1>
+<h1>Selçuksports</h1>
 
 <p>Futbol tutkunları için büyük maçlar, heyecan ve coşku demektir. SelçukSports platformu, 19.01.2025 19:00 tarihinde oynanacak ⚽️ ADANA DEMİRSPOR - FENERBAHÇE ⚽️ maçını sürekli ve yüksek kaliteyle izleme fırsatı sunuyor.</p>
 
